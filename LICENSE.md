@@ -1,4 +1,4 @@
-#  
+#  Experience forsaken like never before with forsaken Script instant, the #1 Script. Includes anti-ban and one-hit kill for unbeatable performance.
 
 
 
